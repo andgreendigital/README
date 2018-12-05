@@ -8,7 +8,7 @@ After reading this document if you have an questions about how I work which I di
 ## Personal Info
 
 I am an Associate AND Friendly Host in club Turing who joined AND in September 2018.
-I am just starting my career having graduated from University of Southampton with Bsc Computer Science in the summer of 2018.
+I am just starting my career having graduated from University of Southampton with BSc Computer Science in the summer of 2018.
 
 I grew up in [Wokingham](https://goo.gl/maps/tpsfSotHTow) and this summer moved to [Finsbury Park](https://goo.gl/maps/vbDB2tQAhtz) with my new wife Emma.
 I love to spend my weekends having friends and family to visit or having people over for dinner, hence my AND title.
