@@ -39,11 +39,11 @@ I do promise to not hold any feedback against people!
 
 - Took the test on joining in September 2018.
 - I am dominate in Blue and Green, the most common profile (18.92% of database).
-- I like to solve problems and think though things logically.
+- I like to solve problems and think through things logically.
 - Organisation is important to me and I appreciate sticking to plans.
 - I am quite intuitive but can struggle to imagine the big picture or be creative.
 - I have strong verbal communication but sometimes aren't as sensitive as I should be.
-- Under pressure I move from Yellow to Red as I focus on the detail and talk though the problems.
+- Under pressure I move from Yellow to Red as I focus on the detail and talk through the problems.
 
 ## Learning
 
